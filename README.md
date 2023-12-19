@@ -1,1 +1,1 @@
-https://kavipras.github.io/constance/
+https://kavipras.github.io/Constance/
